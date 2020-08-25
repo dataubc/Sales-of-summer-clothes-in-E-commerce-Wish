@@ -1,0 +1,1 @@
+# Sales-of-summer-clothes-in-E-commerce-Wish
